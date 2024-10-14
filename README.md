@@ -1,0 +1,2 @@
+# glitcheze
+playin dumb.... lol
